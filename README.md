@@ -1,0 +1,1 @@
+# GGD-and-Maple-files-A-computational-approach-to-the-perimeter--area-inequality-in-a-triangle
